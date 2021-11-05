@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Xoritzium/Xor/Tom
+- 👋 Hi, I’m @Xoritzium/Xori/Tom
 - 👀 I’m interested in 3D-modelling, everything with sport and movement and programming of course
 - 🌱 I’m currently learning to organize my day
 - 📫 How to reach me most likely via discord Xori#4119
